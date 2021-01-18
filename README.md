@@ -1,1 +1,0 @@
-# ceiling-fan-project
